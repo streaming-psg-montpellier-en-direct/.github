@@ -1,8 +1,6 @@
 ## [regarder direct!!]Montpellier - PSG En Direct Streaming Gratuit Ligue 1 On TV 17.03.2024
 
-<!--
-
-**Montpellier - PSG match en direct Live du Dimanche 24 mars 2024
+Montpellier - PSG match en direct Live du Dimanche 24 mars 2024
 La 26e journée de Ligue 1 se termine ce dimanche soir avec une affiche entre Montpellier, à la bataille pour le maintien, et le PSG, solide leader du championnat. Coup d'envoi à 20h45 dans le direct
 
 Montpellier-PSG EN DIRECT : Paris va-t-il remettre la marche avant en Ligue 1 ? Suivez ce match avec nous…
@@ -30,4 +28,3 @@ Ce week-end, place à la 11e journée de Ligue 1 Uber Eats. Pour lancer les host
 
 Montpellier – PSG : à quelle heure et sur quelle chaîne suivre le match en direct ?
 Le match de clôture de la vingt-sixième journée de championnat oppose le Montpellier HSC et le PSG. Les Pailladins n’ont pas le droit à l’erreur, au risque de se rapprocher de la relégation. Ici, on vous explique à quelle heure et sur quelle chaîne suivre le match Montpellier – PSG en direct.
--->
